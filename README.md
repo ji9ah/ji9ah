@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ji9ah
+- 👀 I’m interested in music, interoperability, and decreased reliance on large conglomerations.
+- 🌱 I’m currently learning html, algebra ii, modal scales, and other stuff
+- 💞️ I’m looking to collaborate on a new generation of the web
+- 📫 How to reach me: dm me on discord @ji9ah
+- ⚡ Fun fact: i do stuff
